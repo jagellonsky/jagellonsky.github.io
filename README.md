@@ -1,3 +1,1 @@
-# jagellonsky.github.io
 
-ahoj
